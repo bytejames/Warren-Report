@@ -1,1 +1,1 @@
-# JamesMejiaDev Blog
+# James Mejia Blog
